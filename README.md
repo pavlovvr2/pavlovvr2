@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @pavlovvr2
+- 👀 I’m interested in pavlov vr
+- 🌱 I’m currently learning how to make a pavlov map
+- 💞️ I’m looking to collaborate on nothiing
+- 📫 How to reach me no 
+- ✨ Extra,: im really into modding coding and other stuff, and ive also always wanted to make a map, so i will today :)
